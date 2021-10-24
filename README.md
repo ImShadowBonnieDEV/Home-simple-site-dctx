@@ -1,1 +1,1 @@
-# Home-simple-site-dctx
+# COPYRIGHT 2020 - 2021 THE DCTX TEAM
